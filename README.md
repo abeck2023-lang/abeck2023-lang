@@ -2,6 +2,8 @@
 
 I am an aspiring digital marketing/finance professional.
 
+* For resume, click [here](https://rawcdn.githack.com/abeck2023-lang/abeck2023-lang/31dfe6491a0b267a24e33b5ab6b34d20ebe301f1/Austin%20Beck%20Resume.pdf)
+
 ---
 
 ### 🎓 About Me
